@@ -22,4 +22,4 @@ on the plan💻
 
 on the way, go🎯
 
-Life is like a box of chocolates🍫
+happy new year.
