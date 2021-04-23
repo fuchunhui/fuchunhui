@@ -22,4 +22,4 @@ on the plan💻
 
 on the way, go🎯
 
-happy new year.
+plan A and plan B, 🤩a new plan.
